@@ -1,1 +1,1 @@
-# bdtvip
+#EXTINF:-1,SONIC
